@@ -1,2 +1,2 @@
-# SPOOFER-GLOBAL-PARA-BANIMENTO-HWID-REMOVE-BAN-VALORANT-FIVEM-COD-WARZONE-MTA
-SPOOFER PARA BANIMENTO HWID, SPOOFER REMOVE BAN HWID, NÃO E NECESSARIO FORMATAR
+# Spoofer-para-valorant-fortnite-cs2-pubg-warzone-Remove-ban-hwid-e-serial
+Remove banimento HWID, Remove banimento no valorant error 2, Spoofer funcional em desenvolvimento
